@@ -1,6 +1,6 @@
 ㅤㅤ[![Hits](https://hits.sh/github.com/dol9hins/hits.svg?label=kisses%20%E2%99%A1&extraCount=2821&color=e86f9d&labelColor=5bcdd7)](https://hits.sh/github.com/dol9hins/hits/) ㅤ<img width="20" height="20" alt="1000010174" src="https://github.com/user-attachments/assets/0db4dbf4-1d35-415e-bf28-1121cd0f165e" />
 ㅤ  [![Hits](https://hits.sh/github.com/dol9hins/hits.svg?label=hugs%20%E2%99%A1&extraCount=3465&color=5bcdd7&labelColor=e86f9d)](https://hits.sh/github.com/dol9hins/hits/)                                              
-$${\color{#D1B5D9}\text{ㅤㅤㅤㅤㅤmy }}$$
+$${\color{#D1B5D9}\text{ㅤㅤㅤ ㅤㅤㅤmy }}$$
 [p͟r͟e͟c͟i͟o͟u͟s͟](https://github.com/livingdeadcorpse) 
 $${\color{#B58AC4}\text{ one  }}$$
 $${\color{#FF8AB2}\text{ㅤㅤㅤㅤfeel free to interact with us ♡}}$$
