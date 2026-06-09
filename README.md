@@ -5,7 +5,8 @@ $${\color{#D1B5D9}\text{ㅤㅤㅤ ㅤㅤㅤmy }}$$
 $${\color{#B58AC4}\text{ one  }}$$
 $${\color{#FF8AB2}\text{ㅤㅤㅤㅤfeel free to interact with us ♡}}$$
 
-<img width="1866" height="1726" alt="1000011954" src="https://github.com/user-attachments/assets/4e5ce6dd-ed1e-4da8-b91b-16d14a09a4d0" />
+<img width="498" height="498" alt="1000011897" src="https://github.com/user-attachments/assets/e81c4868-e31a-48a7-bb60-4d71456319b1" />
+
 
 $${\color{#89D2E8}\text{enfp + 7w6}}$$
 $${\color{#C5E1E1}\text{ theo ou dol9hin + he/they  }}$$
